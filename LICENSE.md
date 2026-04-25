@@ -1,4 +1,4 @@
-
+no-ban rivals Script offers the most advanced rivals Script, with auto-farm and undetectable. Perfect for dominating any match.
 
 
 
